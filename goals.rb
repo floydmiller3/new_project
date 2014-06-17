@@ -5,4 +5,5 @@ My goals for the class
 3) complete the class and not miss any of the classes 
 4) be proud of myself and my project
 5) Don't trip anyone with my power cord
-6) Don't fall asleep in class 
+6) Don't fall asleep in class 	
+7) This is a change
